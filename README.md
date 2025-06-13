@@ -1,1 +1,1 @@
-I am a first-year master's student at Hokkaido University.
+I am a second-year master's student at Hokkaido University.
